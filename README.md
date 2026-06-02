@@ -1,1 +1,0 @@
-# JejakKaryaku-Kelas1-SDNTaman
